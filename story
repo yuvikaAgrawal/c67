@@ -1,1 +1,2 @@
 once upon a time, in a forest, there lived a monkey who resided on a jamun tree, which was on the banks of the river. In thesame forest,there lived a crocodile and his wife 
+he kindhearted monkeyoffered him some fruits. The crocodile cam back next day for some more fruits as he loved them. As days passed by,, they became close friends 
